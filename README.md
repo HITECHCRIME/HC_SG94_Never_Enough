@@ -24,10 +24,10 @@ when i open the skies
 everything will be bright
 
 fucking end of days (observing/sipping) (observing end of days)
-skatyt eskata                           (static 
-skatyt eskat et                         (static 
+skatyt eskata                           (static eskata
+skatyt eskat et                         (static eskat et
 fucking blight yeah                     (pleasing blight )
-fucking get it right yeah               (fleeing 
+fucking get it right yeah               (fleeing and flight yeah
 ey ya aye
 
 fucking enough (giving enough)
