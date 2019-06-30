@@ -18,14 +18,16 @@ NF Type Beat
 
 ```
 
+UCHODZCY
+
 when i open the skies
 everything will be bright
 
-fucking end of days (observing/sipping)
-skatyt eskata  (static 
-skatyt eskat et (static 
-fucking blight yeah (pleasing blight flees)
-fucking get it right yeah
+fucking end of days (observing/sipping) (observing end of days)
+skatyt eskata                           (static 
+skatyt eskat et                         (static 
+fucking blight yeah                     (pleasing blight )
+fucking get it right yeah               (fleeing 
 ey ya aye
 
 fucking enough (giving enough)
