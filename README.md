@@ -19,6 +19,22 @@ NF Type Beat
 ```
 
 when i open the skies
+everything will be bright
+
+fucking end of days
+skatyt eskata
+skatyt eskat et
+fucking aight yeah
+fucking get it right yeah
+ey ya aye
+
+fucking enough
+
+fucking enough
+look again 
+
+
+when i open the skies
 when i open the skies
 when i open the skies
 when i open the skies
