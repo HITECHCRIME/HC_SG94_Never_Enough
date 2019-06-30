@@ -21,18 +21,41 @@ NF Type Beat
 when i open the skies
 everything will be bright
 
-fucking end of days
-skatyt eskata
-skatyt eskat et
-fucking aight yeah
+fucking end of days (observing/sipping)
+skatyt eskata  (static 
+skatyt eskat et (static 
+fucking blight yeah (pleasing blight flees)
 fucking get it right yeah
 ey ya aye
 
-fucking enough
+fucking enough (giving enough)
+fucking enyrida 
+fucking enough (NEVER ENOUGH)
 
-fucking enough
+GET IT RIGHT YEAH
+
+- get it
+look again yeah
 look again 
+look again yeah
+aye
 
+yeah
+
+ska ska ska ska
+
+prrrrr
+
+stuck again 
+stuck again - pla pla
+bring about the rend
+(in labirynths)
+there is no end
+there is no end
+there is no end 
+there is no end in sight
+there is no end in sight
+when i open  the skies
 
 when i open the skies
 when i open the skies
